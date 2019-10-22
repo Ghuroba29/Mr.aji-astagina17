@@ -1,0 +1,2 @@
+# Mr.aji-astagina17
+HIDUP MULIA ATAU MATI SYAHID
